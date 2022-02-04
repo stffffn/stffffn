@@ -1,0 +1,3 @@
+- Frontend developer by day 👨🏻‍💻
+- Sleeper at night 🛌
+- Tinkerer in between 🛠
